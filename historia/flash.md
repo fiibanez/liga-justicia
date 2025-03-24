@@ -1,2 +1,0 @@
-# Historia de Flash
-tr8hiouypouiepotyipodtyipotypoitypi untrikticuliocryioucrioutiouodtyouiotiodudtou
